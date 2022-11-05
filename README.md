@@ -4,17 +4,17 @@
 You may call me Lillie, or Yogurt! I'm a synthwave enthusiast and webcore addict who makes *slightly terrifying* Minecraft maps. And when I'm not doing *that*, I'm studying viruses and poking around with computers, making blursed block funnies, and drawing! 
 
 
-- [pronouns](https://en.pronouns.page/@yogurtified): ze/hir (she/her and they/them are also ok!)
-- [personality](https://www.personality-database.com/user/579306): INFP - 4w5 - sp/so - 469 - RLUAI
-- languages: chinese/japanese/english/french
-- [music](https://open.spotify.com/user/f2qcyl8vnltn1ye227piy0wzq?si=a1f2d9b350074d36): literally anything electronic (and sometimes non-electronic!)
-- youtubes: Phoenix SC, Enderman, SystemZee, Joel G, Fundy, Squiddo
-- hotel: trivago
+- [Pronouns](https://en.pronouns.page/@yogurtified): ze/hir (she/her and they/them are also ok!)
+- [Personality](https://www.personality-database.com/user/579306): INFP - 4w5 - sp/so - 469 - RLUAI
+- Languages: Mandarin Chinese / Japanese / English / French (Learning Cantonese!)
+- [Music](https://open.spotify.com/user/f2qcyl8vnltn1ye227piy0wzq?si=a1f2d9b350074d36): Literally anything electronic (And sometimes non-electronic!)
+- YouTubes: Phoenix SC, Enderman, SystemZee, Joel G, Fundy, Squiddo
+- Hotel: Trivago
 
 
-message me anytime 💜
+Message me anytime 💜
 
-nice to meet you!!
+Nice to meet you!!
 
 
 --
