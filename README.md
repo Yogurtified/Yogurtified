@@ -1,7 +1,7 @@
 ### helllooo there, dear reader! 👋
 
 
-You may call me Lillie, or Yogurt! I'm a synthwave enthusiast and webcore addict who makes *slightly terrifying* Minecraft maps. And when I'm not doing *that*, I'm studying viruses and poking around with computers, making blursed block funnies, and drawing! 
+You may call me Lillie, or Yogurt! I'm a synthwave enthusiast and old web addict who makes *slightly terrifying* Minecraft maps. And when I'm not doing *that*, I'm studying viruses and poking around with computers, making blursed block funnies, and drawing! 
 
 
 - [Pronouns](https://en.pronouns.page/@yogurtified): ze/hir (she/her and they/them are also ok!)
