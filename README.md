@@ -20,9 +20,9 @@ Nice to meet you!!
 --
 
 
-tw: https://twitter.com/Yogurtified
+tw: https://twitter.com/Yogurtified/
 
-yt: https://www.youtube.com/channel/UCRUI8yCBzcUEkwWGWa7rYsg
+yt: https://www.youtube.com/@yogurtified_/
 
 <!--
 **Yogurtified/Yogurtified** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
